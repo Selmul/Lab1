@@ -1,3 +1,3 @@
 # Lab1
 
-[lab](https://github.com/Selmul/Lab1/blob/main/Lab1r.html)
+[lab](file:///C:/Users/Selam1/AppData/Local/Temp/Rtmpu2gsBR/preview-94b909384bca.html)
